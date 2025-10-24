@@ -109,7 +109,7 @@ The same approach applies across **FMCG, Retail, and Digital Marketing** — whe
 ---
 
 ### 📧 Contact
-👤 **Your Name**  
+👤 **Abdul Basit**  
 📍 Data Analyst | Power BI Developer | Business Intelligence Enthusiast  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/abdulbasit31/) • [Email](mailto:bassitb50@gmail.com)
 
